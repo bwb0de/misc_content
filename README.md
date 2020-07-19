@@ -4,4 +4,4 @@ Neste repositório incluo links para outros tipos de produção bem como para os
       
 O conteúdo pode ser acessado ao navegar-se pela lista de arquivos disponíveis.
 
-Para um contato direto comigo, utilize o grupo do Telegram.    
+Para um contato direto comigo utilize o grupo do Telegram.    
